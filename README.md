@@ -24,3 +24,4 @@ Python : 기초과정만 2번
 
     [그런느낌](https://www.instagram.com/grunneuggim/) : 수완지구 카페인데 구움과자, 케이크 맛있어요~ 근처에 다른 개인카페들 많아요~
 
+tnwjdaptpwl
